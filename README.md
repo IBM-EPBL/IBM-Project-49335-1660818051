@@ -6,4 +6,5 @@ Brainstorming Ideation https://app.mural.co/invitation/mural/iotbasedsafetygadge
 Customer Journey Map https://miro.com/welcomeonboard/TkFzVHI4dUk5bVRWNTVzUHNsN1hMWGt5SFIyNXlJMElFdTF4SkVsVVU3OXB3UW5FaDkyUk1KOVNyY1RYRnQzZ3wzNDU4NzY0NTM1NDQwNjc1MTU5fDI=?share_link_id=640199113136
 Customer Journey Map 1 
 https://app.mural.co/invitation/mural/iotbasedsafetygadgetforchild8855/1665850442948?sender=u8fcf5718dfa707ce1ada6758&key=22c7f766-9b24-4fe4-ab76-a454bf79b1c9
+
 ASSIGNMENT4 - NANDHINI.V(TEAMLEADER) https://wokwi.com/projects/347913005283934803
